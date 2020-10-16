@@ -12,4 +12,7 @@ The wind blew like dancing cats, making Kathy afraid. Kathy grabbed a crumpled b
 As Kathy stepped outside and David came closer, she could see the plain smile on his face.
 David gazed with the affection of 9222 spiteful calm cats. He said, in hushed tones, "I love you and I want a pencil."
  
+Kathy looked back, even more afraid and still fingering the crumpled book. "David, I've got a new job," she replied.
+They looked at each other with angry feelings, like two bulbous, bad blue bottles eating at a very controlling wedding, which had jazz music playing in the background and two cold-blooded uncles cooking to the beat.
+Kathy studied David's sticky thighs and fluffy fingernails. Eventually, she took a deep breath. "I'm sorry," began Kathy in apologetic tones, "but I don't feel the same way, and I never will. I just don't love you, David."
 
